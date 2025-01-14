@@ -1,1 +1,0 @@
-# norman-data.github.io
